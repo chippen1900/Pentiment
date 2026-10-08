@@ -233,4 +233,4 @@ Pentiment is offered as the full free version. Enjoy all features and updates in
 Dive into the world of Pentiment today and embark on your unique narrative adventure! Download now and experience all the excitement waiting for you!
 
 ---
-**Last updated:** 2026-10-08 16:19:11 UTC
+**Last updated:** 2026-10-08 21:56:58 UTC
